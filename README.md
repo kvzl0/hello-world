@@ -28,8 +28,8 @@ twenty-fifth commit (04.24.25)
 twenty-sixth commit (04.25.25)
 twenty-seventh commit (04.26.25)
 twenty-eighth commit (04.27.25)
-twenty-ninth
-thirty
+twenty-ninth commit (04.28.25)
+thirtieth 
 thirty-first
 thirty-second
 thirty-three
