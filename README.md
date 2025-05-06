@@ -35,7 +35,7 @@ thirty-second commit (05.02.25)
 thirty-three commit (05.03.25)
 thirty-four commit (05.04.25)
 thirty-five commit (05.05.25)
-thirty-six
+thirty-six commit (05.06.25)
 thirty-seven
 thirty-eight
 thirty-nine
