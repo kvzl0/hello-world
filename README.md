@@ -61,7 +61,9 @@ fiftieth commit (05.25.25) Time Check 12:21 PM
 fifty-first commit (05.26.25) Time Check 5:54 AM --Exam Day Programming Language (LONG QUIZ).
 fifty-second commit (05.27.25) Time Check 2:35 AM --Kinda chill day, tomorrow's hell 😭 two final exams incoming.
 fifty-third commit (05.28.25) Time Check 9:03 PM --Dissappointed with the results even though I passed (I guess).
-fifty-fourth commit (005.29.25) Time Check  6:28 PM --Done last quiz in Networking. Too many deadlines tom 😵‍💫.
+fifty-fourth commit (05.29.25) Time Check  6:28 PM --Done last quiz in Networking. Too many deadlines tom 😵‍💫.
+
+fifty-fifth commit (05.31.25) Time Check 8:06 PM --Rest Day frfrfr
 
 
 
