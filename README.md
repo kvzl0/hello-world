@@ -36,8 +36,8 @@ thirty-first commit (04.30.25)
 thirty-second commit (05.02.25)
 thirty-three commit (05.03.25)
 thirty-fourth commit (05.04.25)
-thirty-five commit (05.05.25)
-thirty-six commit (05.06.25)
+thirty-fifth commit (05.05.25)
+thirty-sixth commit (05.06.25)
 thirty-seventh commit (05.07.25)
 
 thirty-eighth commit (05.09.25)
@@ -50,7 +50,7 @@ forty-third commit (05.15.25)
 forty-fourth commit (05.16.25) Time Check 11:05 PM
 forty-fifth commit (05.17.25) Time Check 12:34 PM
 
-forty-fifth commit (05.19.25) Time Check 8:25 PM
+forty-sixth commit (05.19.25) Time Check 8:25 PM
 
 forty-seventh commit (05.20.25) Time Check 8:17 AM
 forty-eighth commit (05.21.25)
@@ -64,6 +64,8 @@ fifty-third commit (05.28.25) Time Check 9:03 PM --Dissappointed with the result
 fifty-fourth commit (05.29.25) Time Check  6:28 PM --Done last quiz in Networking. Too many deadlines tom 😵‍💫.
 
 fifty-fifth commit (05.31.25) Time Check 8:06 PM --Rest Day frfrfr
+fifth-sixth commit (06.01.25) Time Check 8:15 PM --IDK What's happening today HSHSHSHS
+
 
 
 
