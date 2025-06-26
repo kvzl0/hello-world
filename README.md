@@ -90,7 +90,7 @@ seventy-first commit (06.22.25) Time Check 7:48 PM ---Still no update, maybe bec
 seventy-second commit (06.23.25) Time Check 11:37 AM ---Again, there's no email. But I saw in an FB group that there are also applicants that are asking if the test permits are already emailed to the qualified applicants. No one answered they've received an email, so I guess they're send it this week 
 seventy-third commit (06.24.25) Time Check 8:41 PM ---I just noticed that I'm using this just like a diary 🤣. Btw I still haven't received an email for the test permit 😭.
 seventy-fourth commit (06.25.25) Time Check  11:29 PM ---zzzzzzzzzz
-
+seventy-fifth commit (06.26.25) Time Check 8:19 PM ---Went to school to review for the DOST JLSS exam. :)
 
 
 
