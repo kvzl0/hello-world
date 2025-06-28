@@ -91,8 +91,8 @@ seventy-second commit (06.23.25) Time Check 11:37 AM ---Again, there's no email.
 seventy-third commit (06.24.25) Time Check 8:41 PM ---I just noticed that I'm using this just like a diary 🤣. Btw I still haven't received an email for the test permit 😭.
 seventy-fourth commit (06.25.25) Time Check  11:29 PM ---zzzzzzzzzz
 seventy-fifth commit (06.26.25) Time Check 8:19 PM ---Went to school to review for the DOST JLSS exam. :)
-seventy-sixth commit (06.26.25) Time Check 7:53 PM ---Went to school again for the 2nd day of our review hosted by the DOST Scholars Club in TUP-Manila. Today we reviewed about Logical Reasoning and Science. (Also I forgot to put yesterday that we reviewed about English and Math 😊_
-
+seventy-sixth commit (06.27.25) Time Check 7:53 PM ---Went to school again for the 2nd day of our review hosted by the DOST Scholars Club in TUP-Manila. Today we reviewed about Logical Reasoning and Science. (Also I forgot to put yesterday that we reviewed about English and Math 😊_
+seventy-seventh commit (06.28.25) Time Check 9:46 PM ---Went to dentist and said that I need to get an x-ray for my teeth. After that I saw that two of my wisdom tooth are impacted.
 
 
 
