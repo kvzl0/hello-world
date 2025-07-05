@@ -99,6 +99,7 @@ seventy-ninth commit (07.01.25) Time Check 8:59 PM ---I'm scared to fail. I feel
 
 eightieth commit (07.03.25) Time Check 8:27 PM ---We're having a mock exam tomorrow and my schedule was 8 AM-11 AM but for some reason they changed it to 9 AM-12 PM. I'm excited but nervous since I still haven't received an email for the test permit in DOST JLSS Exam.
 
+eighty-first commit (07.05.25) Time Check 9:36 AM ---Still haven't received any test permit, Also waiting for the result of the Mock Exam.
 
 
 
