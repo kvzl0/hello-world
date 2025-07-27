@@ -121,7 +121,7 @@ ninety-fifth commit(07.23.25) Time Check 11:57 PM ---Third rev
 ninety-sixth commit(07.23.25) Time Check 11:02 AM ---Fourth Rev
 
 ninety-seventh commit(07.26.25 Time Check 8:23 AM ---Sixth Rev. The DOST announced yesterday that the exam was postponed due to bad weather so I have more time to review
-
+ninty-eighth commit(07.27.25) Time Check 10:24 AM ---Exam day of the regions who's exam didn't postponed. Just saw a post that their only 9,000, which means most of the applicants are obviously from region 4-a and ncr.
 
 
 
