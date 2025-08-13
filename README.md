@@ -129,3 +129,14 @@ hundredth and first commit (07.31.25) Time Check 11:06 PM ---Tenth Rev. Still wa
 hundredth and second commit (08.01.25) Time Check 11:23 PM ---Eleventh Rev. Some people says the new sched for the examination would be on August 10.
 
 hundredth and third commit (08.02.25) Time Check 4:54 AM ---Too many happenings in my life 😵‍💫.
+
+
+
+
+
+
+
+
+
+
+hundreth and fourth commit (08.13.25) Time Check 11:06 AM ---So it's my birthday and I'm still recovering from that chickenpox, there are still scabs to heal so basically I'm not yet fully healed but my parents don't want to buy the antibiotics anymore which is very frustrating because it's all I'm asking for. I don't care about gifts, celebration or event getting a greeting for this day. All I need is for this chickenpox to heal. Am I asking too much? Did I do anything wrong to deserve what's happening in my life? All I want for this day is answers, answers for the reasons WHY AM I THE ONLY ONE SUFFERING FROM THIS FUCKING LIFE WHEN ALL THEY DO IS JUST ENJOY THEIR LIFE WHILE I ALWAYS SUFFER IN SILENCE? I HATE MY LIFE, I HATE EACH AND EVERYTHING THAT'S HAPPENING TO ME. THESE AREN'T JUST CHALLENGES, THESE ARE CURSED! CURSED THAT I'VE ALWAYS BEEN SUFFERING SINCE I WAS A CHILD. EVERY SINCE I WAS A CHILD I WAS FORCED TO BE THE SMALL PERSON, THE ONE WHO ADJUST, THE ONE WHO GIVE, AND THE ONE WHO LETS OTHER DO THEIR THING FIRST WHILE I WAS FORCED TO BE SILENT. NOT BY WORDS OF OTHERS BUT FORCED TO BE SILENT BECAUSE OF THESE EXPERIENCES. WHY I ALWAYS HAVE TO BE THE ONE SUFFERING FROM THE THINGS THAT I DIDN'T DO IN THE FIRST PLACED?WHHY IT'S ALWAYS HAVE TO BE ME? WHYYYYYYYYYYYYYYYYYYYYYYYYYY
