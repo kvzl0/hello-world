@@ -146,3 +146,9 @@ hundreth and fifth commit (08.14.25) Time Check 10:04 PM ---I don't know what ha
 
 
 107th commit (08.19.25) Time Check 11:07 PM ---Not feeling well these past few days😵‍💫.
+
+
+
+
+108th commit (08.24.25) Time Check 7:18 PM ---..........
+
